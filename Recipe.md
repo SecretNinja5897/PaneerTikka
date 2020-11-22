@@ -1,0 +1,3 @@
+Steps:
+
+To begin, you must make the marinade, in order to do so, put in a mixing bowl all the ingredients from steps 1-7. Then add the ingredients from steps 8-10. Then add the oil, any oil works. Mix everything well, the marinade must be thick. Taste it and add more spices and salt if neccessary. Add the capsicum and onions. Mix together the capsicum and onions and then add the paneer. Mix the new ingredients together and leave them in the fridge for 1 hour. Then thread the paneer, capsicums, and paneers on a skewer. Roast on a griddle or tawa with 1 tablespoon of oil, and then cook evenly on all sides. Then you have your paneer tikka!
